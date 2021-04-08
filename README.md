@@ -7,7 +7,7 @@ If I’m not helping with TempleOSRS you will find me hanging around in various 
 
 I am one of the few administrators and curators for TempleOSRS & EHP, as well as as a lead administrator for the Volcanic Mine discord. Besides this I’m a staff member in Omnia, a member of Totus, and a member of The Summit.
 
-I like helping where I can, and documenting my knowledge for others to learn
+I like helping where I can, and documenting my knowledge for others to learn.
 
 - RSN: [Saffi](https://www.templeosrs.com/player/overview.php?player=Saffi)
 - Discord: [Saffi#1622](https://discordapp.com/users/201915249027186688/)
