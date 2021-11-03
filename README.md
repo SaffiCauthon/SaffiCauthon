@@ -5,7 +5,7 @@ Hopefully you've found this account in good will, it is a private account to be 
 
 If I’m not helping with TempleOSRS you will find me hanging around in various Discord servers, or playing in some semi-efficient manner.
 
-I am one of the few administrators and curators for TempleOSRS & EHP, as well as as a lead administrator for the Volcanic Mine discord. Besides this I’m a staff member in Omnia, a member of Totus, and a member of The Summit.
+I am one of the few administrators and curators for TempleOSRS & EHP. Besides this I’m a staff member in Omnia, a member of Totus, and a member of The Summit.
 
 I like helping where I can, and documenting my knowledge for others to learn.
 
