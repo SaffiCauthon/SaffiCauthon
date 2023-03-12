@@ -1,9 +1,14 @@
-# A Bit About Me:
-Hi, I'm Saffi Cauthon!
+**Hi, I'm Saffi Cauthon!**
 
-Hopefully you've found this account in good will, it is a private account to be used for Runescape & Old School Runescape purposes.
+Hopefully, you've found this collection of webpages in goodwill. This website is for Runescape & Old School Runescape purposes.
 
-I like helping where I can, and documenting my knowledge for others to learn.
+I am an avid RuneScape veteran who has played the game for 15+ years.
+
+I enjoy playing with an efficient mindset and learning about various game mechanics. You will often find me contributing to niche community projects and helping document anything I can get my hands on.
+
+Previously I helped administrate, develop, and  support projects such as <a href="https://templeosrs.com/">TempleOSRS.com</a> and <a href="https://discord.com/invite/FXPUrUp">The Volcanic Mine Discord Server</a>.
+
+I am part of several groups, such as <a href="https://twitter.com/Totus">Totus</a>, <a href="https://twitter.com/Omnia_Clan">Omnia</a>, and <a href="https://twitter.com/The__Summit">The Summit</a>.
 
 - RSN: [Saffi](https://www.templeosrs.com/player/overview.php?player=Saffi)
 - Discord: [Saffi#1622](https://discordapp.com/users/201915249027186688/)
